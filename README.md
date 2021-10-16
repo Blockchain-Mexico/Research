@@ -1,1 +1,2 @@
 # Research
+COPYRIGHT BURN!
