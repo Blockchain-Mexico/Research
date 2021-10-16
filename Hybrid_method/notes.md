@@ -1,5 +1,6 @@
 ### Notes of hybrid method.
 
+# Example: https://github.com/YaChienChang/Neural-Lyapunov-Control
 
  Lypanov fx  in the trace in singularity form.
 Mean:   >-----<
