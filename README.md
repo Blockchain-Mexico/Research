@@ -25,5 +25,8 @@ the combinatory and logic of LV guy
 
 
 https://hackmd.io/@kw96y6lUSJ2k61ShZqGokQ/SyktPZFBt
+# Impossibily push out desing rationale
+
+Well the guy G that dont want to be so "RICH" , create a downloand in a x Store 
 
 COPYRIGHT BURN!
