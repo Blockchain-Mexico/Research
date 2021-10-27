@@ -2,6 +2,9 @@
 
 # Research
 
+# Time of execution 
+
+Well depends of the fund - we are just calculating the trillionarie non trivial appears or just debug the SHIB 
 
 
 #Security concerns 
