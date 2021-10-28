@@ -1,6 +1,5 @@
 
-
-### The Ethic of Scince the missing piece for a peacuful earth to think non trivial stuff until we can figuering out MATH powerful not just password protections
+### The Ethic of Science the missing piece for a peacuful earth to think non trivial stuff until we can figuering out MATH powerful not just password protections
 
 
 
@@ -18,5 +17,7 @@ When be enough string tamper proof non trivial aka google
 The desing rationale was ethic for the primes (chord) fibonnaci recursion
 
 The emotinal intelligence Latin America perspective?
+
+Was the horizon of do this of out ethic time mean: 2000 year after ?
 
 The paranoid android: just a lot of math erase because there is not a live typo of Sidis
