@@ -17,4 +17,6 @@ When be enough string tamper proof non trivial aka google
 
 The desing rationale was ethic for the primes (chord) fibonnaci recursion
 
-The emotinal intelligence Latin America perspective? 
+The emotinal intelligence Latin America perspective?
+
+The paranoid android: just a lot of math erase because there is not a live typo of Sidis
