@@ -1,5 +1,6 @@
 
 
+### The Ethic of Scince the missing piece for a peacuful earth to think non trivial stuff until we can figuering out MATH powerful not just password protections
 
 
 
@@ -15,3 +16,5 @@ When ethics?
 When be enough string tamper proof non trivial aka google
 
 The desing rationale was ethic for the primes (chord) fibonnaci recursion
+
+The emotinal intelligence Latin America perspective? 
