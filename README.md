@@ -31,5 +31,6 @@ Well the guy G that dont want to be so "RICH" , create a downloand in a x Store
 
 # SCAM dilegency chain non ethic
 This is a scam and we are just a schizophrenia blockchain that was just invented witout the token double spend that is trivial.
+# What is the string ethic ? a holistic one , a non trivial - trivial sense ? or what do you mean ?
 
 COPYRIGHT BURN!
