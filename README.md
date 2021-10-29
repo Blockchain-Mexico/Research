@@ -29,4 +29,7 @@ https://hackmd.io/@kw96y6lUSJ2k61ShZqGokQ/SyktPZFBt
 
 Well the guy G that dont want to be so "RICH" , create a downloand in a x Store 
 
+# SCAM dilegency chain non ethic
+This is a scam and we are just a schizophrenia blockchain that was just invented witout the token double spend that is trivial.
+
 COPYRIGHT BURN!
